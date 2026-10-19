@@ -1,26 +1,11 @@
 <div align="center">  
 
-![](https://file.garden/ZykaNJjJbymhWUBX/top)
-
-Hello!⠀My⠀name⠀is⠀**Mika**⠀or⠀**Markus**⠀though⠀I⠀respond⠀to
-
-just about⠀[anything](https://rentry.co/aherozn) these⠀days.⠀I⠀am⠀*demigirl*⠀and⠀*straight*
-
-with⠀a⠀lovely⠀husband⠀...⠀He⠀is⠀my⠀absolute⠀**EVERYTHING**.
+![](https://komarev.com/ghpvc/?username=hancole&label=yeehan&style=plastic&color=9B4836) 
+![](https://file.garden/atV20tBv13uQzKAZ/hancole.jpg)
 
 
-**Mob⠀Psycho⠀100**⠀&⠀**Yuri!!⠀On⠀Ice**⠀are⠀my⠀special⠀interests.
-
-Nu⠀Metal,⠀FnAF,⠀OMORI,⠀and⠀Yokai⠀Watch⠀are⠀my⠀hyperfixs.
-
-![](https://file.garden/ZykaNJjJbymhWUBX/bottom)
-
-![](https://komarev.com/ghpvc/?username=komasandayu&label=(ᵔ⩊ᵔ)&style=plastic&color=3182C3)  
-
+  **read my linked rentry :)**
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314ruwkk2l4aebakn6xstqopuu4q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-
-
-Leave a message on my [Atabook](https://togami.atabook.org/) if you see me hanging around !
